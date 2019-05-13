@@ -13,6 +13,12 @@
 通讯53：[一门叫做“抵制狗屁”的大学课程](https://link.zhihu.com/?target=https%3A//mp.weixin.qq.com/s/8Cds0bZq7XXy4wK-3QA4JA)
 
 ---------------------------------------------------------------
+### 290 拆分Facebook？
+是时候拆分Facebook了？
+Chris Hughes是谁？他具体写了些什么？
+Facebook如何回应？
+拆分Facebook能解决问题吗？
+
 ### 289  美国三大台换主播：“主持人中心制”的风险
 美国三大台换主播：“主持人中心制”的风险；  
 女性取代性骚扰者；  
