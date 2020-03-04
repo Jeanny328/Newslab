@@ -1,6 +1,6 @@
 ## 新闻实验室会员通讯目录
 
-### 【通知】大家好！新闻实验室会员通讯目录现已移至[这里](https://github.com/Newslab2020/Contents/blob/master/premium.md),本页面自2020年3月1日起停止更新，麻烦大家移步查看 ：）
+### 【通知】大家好！新闻实验室会员通讯目录现已移至[这里](https://github.com/Newslab2020/Contents/blob/master/premium.md)。本页面自2020年3月1日起停止更新，烦请大家移步查看。 ：）
 
 
 > 问：如何阅读会员通讯？  
